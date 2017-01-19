@@ -1,2 +1,2 @@
-# Bichon Frise
+# Bichon Frisé
 https://bichonfrise.com.br/
